@@ -1,5 +1,5 @@
 ## WORK IN PROGRESS...!
 
-★  —  19  | She/Her
-★  —  Bradley, my love
-★  —  Artist & Streamer
+★  —  19  —  She/Her
+  —  Bradley, my love
+  —  Artist & Streamer
