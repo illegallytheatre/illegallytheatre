@@ -1,8 +1,9 @@
 ## RIO'S INTRODUCTION :
 
 ★  —  19  —  She/Her </br>
-★  —  Bradley, my love </br>
-★  —   Art, Steaming, General & Criminological Psychology - Theatre, Animal Care, Gardening, Gaming, Musicals, (Fantasy) Story-Telling, Writing, Horror Games & Movies, D&D </br>
+★  —  Bradley, my love  </br>
+★  —  Art, Steaming, General & Criminological Psychology - Theatre, Animal Care, Gardening, Gaming, Musicals, (Fantasy) Story-Telling, Writing, Horror Games & Movies, D&D </br>
+★  —  Helping those in need, always <3 </br>
 </br>
 ### FOR PONYTOWN :
 ★  —  DSDF Founder & Owner | WRC Enlistee </br>
