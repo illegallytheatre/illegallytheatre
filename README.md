@@ -6,7 +6,7 @@
 ★  —  Helping those in need, always <3 </br>
 </br>
 ### FOR PONYTOWN :
-★  —  DSDF Founder & Owner - Story Writer + Artist | WRC Senior Staff </br>
+★  —  DSDF Founder & Owner - Story Writer + Artist | NOD Co-Owner | WRC Senior Staff </br>
 ★  —  Do not repost my skins ANYWHERE without my permission, esp Pinterst | Minor insporation is okay </br>
 ★  —  Kisses | Boops | Sneezing | Cuddles | Covering | RTS | Whisper | Nicknames | Offering Items/Gifts/Ect | Pings | Tone-Tags | Friendly-Fire | Make MVs | Draw my fellas </br>
 
