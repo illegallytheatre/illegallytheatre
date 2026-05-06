@@ -1,6 +1,6 @@
 ## RIO'S INTRODUCTION :
 
-★  —  19  —  She/Her </br>
+★  —  20  —  She/Her </br>
 ★  —  Bradley, my love  </br>
 ★  —  **Lead Artist for 8BitMorphs** | Art, Steaming, General & Criminological Psychology - Theatre, Animal Care, Gardening, Gaming, Musicals, (Fantasy) Story-Telling, Writing, Horror Games & Movies, D&D </br>
 ★  —  Helping those in need, always <3 </br>
