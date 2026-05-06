@@ -2,11 +2,11 @@
 
 ★  —  19  —  She/Her </br>
 ★  —  Bradley, my love  </br>
-★  —  Art, Steaming, General & Criminological Psychology - Theatre, Animal Care, Gardening, Gaming, Musicals, (Fantasy) Story-Telling, Writing, Horror Games & Movies, D&D </br>
+★  —  **Lead Artist for 8BitMorphs** | Art, Steaming, General & Criminological Psychology - Theatre, Animal Care, Gardening, Gaming, Musicals, (Fantasy) Story-Telling, Writing, Horror Games & Movies, D&D </br>
 ★  —  Helping those in need, always <3 </br>
 </br>
 ### FOR PONYTOWN :
-★  —  DSDF Founder & Owner - Story Writer + Artist | FPF Founder & Owner | NOD Co-Owner | WRC Senior Staff </br>
+★  —  DSDF Founder & Owner - Story Writer + Artist | FPMS Founder & Owner | NOD Co-Owner | WRC Deputy Staff </br>
 ★  —  Do not repost my skins ANYWHERE without my permission, esp Pinterst | Minor insporation is okay </br>
 ★  —  Kisses | Boops | Sneezing | Cuddles | Covering | RTS | Whisper | Nicknames | Offering Items/Gifts/Ect | Pings | Tone-Tags | Friendly-Fire | Make MVs | Draw my fellas </br>
 
